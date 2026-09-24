@@ -1,4 +1,4 @@
-PLEASE CLICK ON THIS READ-ME
+Read this to understand my Projects :)
 
 Hey :)
 If you ever wanted or needed a Dispatching System for whatever reason or purposes... here you go XD
